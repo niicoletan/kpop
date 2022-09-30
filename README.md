@@ -1,2 +1,1 @@
 # kpop
-theme: minimal
