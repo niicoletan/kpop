@@ -1,4 +1,4 @@
-# Traveling
+# TRAVELING
 
 London, UK
 ![IMG_0600](https://user-images.githubusercontent.com/114507476/193384189-f320c441-d8b6-460e-a349-6baf0ea3082c.JPG)
