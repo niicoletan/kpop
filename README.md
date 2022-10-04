@@ -1,4 +1,4 @@
-# **TRAVELING**
+# **Places to Travel to in Europe**
 
 ## London, UK
 ### Places to visit in London: Buckingham Palace, Tower of London, Tower Bridge, London Bridge.
